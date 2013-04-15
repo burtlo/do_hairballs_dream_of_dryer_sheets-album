@@ -4,7 +4,7 @@ Songs inspired by Hairballs.
 
 ## Listen
 
-* [Soundcloud](https://soundcloud.com/franklin-webber)
+* [Soundcloud](https://soundcloud.com/franklin-webber/sets/marcy-and-slumpy)
 
 ## Requirements
 
